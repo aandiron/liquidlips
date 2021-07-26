@@ -8,11 +8,15 @@ Oh yes. Come in. Close the door behind you while I just ease myself down into th
 
 
 
-Now, wrap one of your warm little hands around the base. I need you to get this vision into your head: you aren't sucking me off, you are fucking me. Your mouth is your pussy, and you are using your body, with all it's liquid motion, to get me off. Roll your head like you would roll your hips if you were riding me. Come up and down on it in long stroke, but come down hard and really grind on my cock. Move your head forward when you hit the bottom and roll it back and you come up.
-
-
+Now, wrap one of your warm little hands around the base. 
+As you go down, stroke downward with your hand. As you come up draw you hand up a short way. Make sure you get everything wet and keep it wet.
+Now I want you to move your head like you are fucking me with your mouth. Don't just slide straight up and down, bring your head forward as you come down, and then roll it backwards as you come up. Roll your head on my cock. Imagine you have the unstoppable power of a deep-ocean swell, and you are going to use it to make me cum.
 
 When I cum it will be super-sonic like one of those mantis shrimps punching its way out of an aquarium. I just don't want you to be taken by surprise when it happens.
+
+I can feel my orgasm. It's still deep down inside me, but it's coming up for you. I'm going to hold it back. I want you to summon it forth with all the skill of your motion. ... Ah! Yes. My orgasm is suspending, floating with no restraints. ... No, not floating. It is in fact buffeted -- it's being thrust back and forth along my spine like a powerful wave bouncing between two seawalls. Oh. ... No. I can't hold it back any longer. ... ... Get. All. The. Way! ... Hold it! Hold it! Tighter! ... 
+
+
 
 
 
