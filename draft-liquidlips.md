@@ -8,7 +8,7 @@ Oh yes. Come in. Close the door behind you while I just ease myself down into th
 
 
 
-
+Now, wrap one of your warm little hands around the base. I need you to get this vision into your head: you aren't sucking me off, you are fucking me. Your mouth is your pussy, and you are using your body, with all it's liquid motion, to get me off. Roll your head like you would roll your hips if you were riding me. Come up and down on it in long stroke, but come down hard and really grind on my cock. Move your head forward when you hit the bottom and roll it back and you come up.
 
 
 
