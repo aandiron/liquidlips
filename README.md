@@ -1,5 +1,5 @@
 README.md
-Last modified: Thu Aug 26, 2021  04:22PM
+Last modified: Sat Sep 11, 2021  01:50PM
 
 # Liquid Lips
 * By A. Andiron
@@ -11,6 +11,7 @@ Last modified: Thu Aug 26, 2021  04:22PM
 	* https://medium.com/@a.andiron/your-liquid-lips-716b6c75a693
 * Or, compile from this source code using latex.
 	* (Or just read the markdown, available in source.) 
+* Audio version (files for Audacity) in ./audio directory.
 
 ## Compilation notes:
 * Use pandoc to compile .md into whatever format you like.
