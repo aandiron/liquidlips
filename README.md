@@ -1,5 +1,5 @@
 README.md
-Last modified: Sun Sep 26, 2021  11:53AM
+Last modified: Sun Mar 13, 2022  02:53PM
 
 # Liquid Lips
 * By A. Andiron
@@ -7,9 +7,7 @@ Last modified: Sun Sep 26, 2021  11:53AM
 ## How to read it:
 * Available to read on Literotica:
 	* https://www.literotica.com/s/your-liquid-lips
-* And on Medium:
-	* https://medium.com/@a.andiron/your-liquid-lips-716b6c75a693
-* Or, compile from this source code using latex.
+* Or, compile from this source code using pandoc.
 	* (Or just read the markdown, available in source.) 
 
 ## Compilation notes:
